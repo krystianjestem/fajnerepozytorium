@@ -1,0 +1,2 @@
+# fajnerepozytorium
+fajne polecam
